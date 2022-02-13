@@ -13,5 +13,5 @@
 3. Умею работать в команде
 4. Английский язык B2
  
-![0EL1SImVYiY.jpg](img/0EL1SImVYiY))
+![0EL1SImVYiY.jpg](img/0EL1SImVYiY)
 
